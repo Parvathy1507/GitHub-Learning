@@ -1,4 +1,4 @@
-# Hi, I'm Parvathy 👋
+# Hi, I'm Parvathy Jayakumar 👋
 
 ## About Me
 - 🎓 BSc Cyber Security Student
